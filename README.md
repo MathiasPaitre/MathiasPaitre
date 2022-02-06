@@ -1,0 +1,5 @@
+- 🌻 Hi, I’m @MathiasPaitre
+- 🌞 I’m interested in art, memes and class struggle...
+- 💌 How to reach me : mathias.paitre@gmail.com
+- 🕊 Twitter : @hellopathias
+- 🦀 Instagram : @mathiaspaitre
